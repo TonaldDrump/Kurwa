@@ -1,2 +1,2 @@
-# Kurwa
+# Pierogy
 Pierdolne Pierogy
