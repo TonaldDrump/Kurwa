@@ -1,0 +1,2 @@
+# Kurwa
+Pierdolne Pierogy
